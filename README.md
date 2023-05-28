@@ -1,6 +1,7 @@
 # Scully_repository
 UI
-## Figma
+## Sigma
 fajnlkfiuwrhbvkjfnk;lag
 fkJBJKLlk;NVklbnKJNlknv
 hajkvLKNlkhbv;lkZNbv
+jkfGLKJHFJAHJKALVJBJKVBBVAjkbVJKBVKJSUKKYT
