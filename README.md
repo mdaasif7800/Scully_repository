@@ -2,5 +2,5 @@
 UI
 ## Figma
 fajnlkfiuwrhbvkjfnk;lag
-afvjkalkhfoialgk
-sajkjvnalkgfhlk
+fkJBJKLlk;NVklbnKJNlknv
+hajkvLKNlkhbv;lkZNbv
